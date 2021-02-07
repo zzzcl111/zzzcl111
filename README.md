@@ -1,12 +1,13 @@
-### Hi there 👋
+### Hi TYY
 
 
-Here are some ideas to get you started:
+### Watch Here !!!
 
-- 🔭 Be in love with TYY.
-- 🌱 Learning how to be a good boyfriend.
-- 👯 Working on some sexual games with TYY.
-- 💬 Having a lot of words with TYY. 
-- 📫 And today is Valentine's Day.
-- 😄 Wish my baby will be surprised.
-- ⚡ Face-To-Face in few days.
+
+### - 🔭 Be in love with TYY.
+### - 🌱 Learning how to be a good boyfriend.
+### - 👯 Working on some sexual games with TYY.
+### - 💬 Having a lot of words with TYY. 
+### - 📫 And today is Valentine's Day.
+### - 😄 Wish my baby will be surprised.
+### - ⚡ Face-To-Face in few days.
