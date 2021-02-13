@@ -12,6 +12,4 @@
 ### - 😄 Wish my baby will be surprised.
 ### - ⚡ Face-To-Face in few days.
 
-### -Notice :
-### -First  [Click Here](https://zzzcl111.github.io/LoveTree/index.html)
-### -Then   [Click The Following TYY]
+### -[Click Here](https://zzzcl111.github.io/LoveTree/index.html)
